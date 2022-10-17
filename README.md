@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @miasanzc
 - 👀 I’m interested in UX/UI
-- 🌱 I’m currently learning a UX Course to get my certification
+- 🌱 I’m currently learning UX advanced Course to get my certification
 - 💞️ I’m looking to collaborate on remote jobs
 - 📫 How to reach me trough my email : miasanzcaceres@gmail.com
 
